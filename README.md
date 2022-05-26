@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Melkanea diy solo mode monkey
+- 👋 Hi, I’m @Melkanea diy rickle ape
 - 👀 I’m interested in makin every atom a token
 - 🌱 I’m currently learning how to atomize tokens
 - 💞️ I’m looking to collaborate on MEINcrafting the universe
