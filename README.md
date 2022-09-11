@@ -5,8 +5,6 @@
 - 👋 AllMyLinks Social Media
 - 👋 https://allmylinks.com/melanie-elizabeth-damm
 
-
-
 <!---
 💞️ Brandynette NSFW site
 📫 https://brandynette.com
