@@ -10,6 +10,6 @@
 📫 https://brandynette.com
 
 
-💞️ In 2018 Brandynette graduated from Pornhub as a Amateur Pornstar 
+💞️ In 2018 Brandynette graduated 
 💞️ Amateur Pornhub Pornstar || Hypno Sissy Brandynette
 
