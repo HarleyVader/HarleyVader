@@ -1,11 +1,12 @@
-- 👋 Hi, I’m @Melkanea diy rickle ape
-- 👀 I’m interested in makin every atom a token
-- 🌱 I’m currently learning how to atomize tokens
-- 💞️ I’m looking to collaborate on MEINcrafting the universe
-- 📫 Bimbot https://brandyphilias.com/bimbot.html
--  <3 https://nowhere2point0.xyz
--  Brandynette NSFW site
--  https://brandynette.com
+- 👋 Hi, I’m @Melkanea Freelance Fullstacker DIY been in IT since building my first Desktop back 1997
+- 📫 Nowhere 2.0 is my ME!ME!ME! Portfolio Site 
+- 👀 https://nowhere2point0.xyz
+- 🌱 Started out as a webdevloper on my own NSFW sites in 2015
+- 💞️ Brandynette NSFW site
+- 📫 https://brandynette.com
+- 💞️ In 2018 Brandynette graduated from Pornhub as a Amateur Pornstar 
+- 💞️ Amateur Pornhub Pornstar || Hypno Sissy Brandynette
+- 📫 https://www.pornhub.com/pornstar/brandynette
 
 <!---
 Bimbot is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
