@@ -4,3 +4,5 @@
 - 👋 AllMyLinks Social Media
 - 👋 https://allmylinks.com/melanie-elizabeth-damm
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/V7V22WXWS)
+
