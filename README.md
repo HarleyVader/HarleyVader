@@ -5,7 +5,6 @@
 
 - 👋 #Brandynette #Melkanea #Damm´s Gravatar:
    [harleyvader](https://gravatar.com/harleyvader)
-
   
  My initial strategy was:
  Use mainstream social to share posts & get content to specific groups interested in my niche.
@@ -16,29 +15,15 @@ while algorithms put me in disadvantage as my choosen porn niche was full of est
    Create your own respected amateur model site for 6$ a month! As shared hosting is a healthy choise to expand, learn & grow!
   [Adult Shared Hosting](https://vicetemple.net/aff.php?aff=969&page=adult-web-hosting)
 
-
-Self promotion & follower interactions getting out of hand?   
-tired of corporations taking a % of earnings?   
-time to monetize from your horny creations like you deserve!  
-Having your files all over the net presents real problems! 
-ugly links looking like spamm.
-bad actors cheating your traffic, 
-malicious code stealing user data while blaming you for posting it,
-affiliate marketing using your kinky porn & name to monetize... 
-the problems & causes are unlimited! 
-
-The solution is simple: an Adult oriented Content Management System running on a Virtual Private Server! 
-
 here is my bambisleep a stoopid simple free files share! 
 [Neon Goth Bambi Series](https://brandynette.xxx/videos/neon-goth-bambi)
 
 
-- # "NSFW Websites needs a proper structure to live on, with the right adult tools & technology adult modeling oriented!"
-your content & model data needs to be in one place!  
-
+- # "NSFW sites need proper structure to live on!
+the right adult tools & all technology your style of adult modeling wants!
+Be it from bloging about creations with member interactions inccluding affiliate marketing ads from guest models,
+earning tips from livestreams & public shows automatically being spliced to mainstream CamSites like Chaturbate 
 A drag & drop site builder, while files get secured behind membership areas & affiliates monetization comes from your own independant blog advertizing your guest models cooperations! 
-
-
 
 from being stupid simple to setup to powerfull enough to solve all your silly problems.
 [ModelX WordPress CMS](https://vicetemple.net/aff.php?aff=969&page=adult-wordpress-themes/modelx)
