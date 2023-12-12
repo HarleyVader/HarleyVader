@@ -11,8 +11,6 @@
  Host first videos for free on XXX tubes & shared them to adult forums to ge user interactions! 
 while algorithms put me in disadvantage as my choosen porn niche was full of establisched content creators!
 
-
-
  - # 🌱 Start Small & Grow Steady!  
    Create your own respected amateur model site for 6$ a month! As shared hosting is a healthy choise to expand, learn & grow!
   [Adult Shared Hosting](https://vicetemple.net/aff.php?aff=969&page=adult-web-hosting)
@@ -26,17 +24,17 @@ A drag & drop site builder, while files get secured behind membership areas & af
 here is my bambisleep a stoopid simple free files share! 
 [Neon Goth Bambi Series](https://brandynette.xxx/videos/neon-goth-bambi)
 
-Here is my stoopid simple LiveStream
+Here is my stoopid simple [Chaturbate integration](https://brandynette.xxx/livestream)
 
 
 from being stupid simple to setup to powerfull enough to solve all your silly problems.
 [ModelX WordPress CMS](https://vicetemple.net/aff.php?aff=969&page=adult-wordpress-themes/modelx)
 
 
-- Get your private server to host your beautiful adult website! 
+- # Get your private server to host your beautiful adult website! 
 An easy to self manage, secure server adult oriented [Virtual Private Server](https://vicetemple.net/aff.php?aff=969&page=adult-vps)
 
-- 📫 Live NSFW sites: 
+- 📫 # Live NSFW sites: 
   [Brandynette´s Mindfuck Tube](https://brandyntte.xxx/videos)
   [Who is Brandynette?](https://brandynette.com/who-is-brandynette)
 
