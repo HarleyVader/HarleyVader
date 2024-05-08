@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Melkanea Junior Fullstacker been in IT since 1997.  
    My parents where able to ground me for breaking my first PC as i fixed it on my own & so discovering the wonders of digital technology!
 
-[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/V7V22WXWS)
 
 - 👋 #Brandynette #Melkanea #Damm´s Gravatar:
    [harleyvader](https://gravatar.com/harleyvader)
