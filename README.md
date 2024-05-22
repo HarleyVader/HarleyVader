@@ -39,5 +39,5 @@ An easy to self manage, secure server adult oriented [Virtual Private Server](ht
   
   [RubberAlyx.xxx](https://rubberalyx.xxx/)
 this is how wordpress sites looks like with "pornX trans theme" but who cares for how the porn machine looks like its all about what the engine can do to get f*cked
- its not properly conected & setup decitions decitions, who do i wanna work with, will they care about me & my content & support my career? ohh well amateur. 
+ its not properly conected & setup decitions decitions, who do i wanna work with, will they care about me & my content & support my career? ohh [#justamateurthings](https://twitter.com/search?q=%23justamateurthings&src=typed_query). 
  (fact its up & running is the easy part... getting your model to actaully produce content? NYaaaKAAAaa!  )
