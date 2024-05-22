@@ -21,12 +21,12 @@ earning tips from livestreams & public shows automatically being spliced to main
 A drag & drop site builder, while files get secured behind membership areas & affiliates monetization comes from your own independant blog advertizing your guest models cooperations! 
 
 here is my bambisleep a stoopid simple free files share! 
-[Neon Goth Bambi Series](https://brandynette.xxx/videos/neon-goth-bambi)
+[Neon Goth Bambi Series](https://brandynette.xxx/videos)
 
 Here is my stoopid simple [Chaturbate integration](https://brandynette.xxx/livestream)
 
 
-from being stupid simple to setup to powerfull enough to solve all your silly problems.
+from being stupid simple to setup to powerfull enough to solve all your silly problems we put the effort in!
 [ModelX WordPress CMS](https://vicetemple.net/aff.php?aff=969&page=adult-wordpress-themes/modelx)
 
 
@@ -34,8 +34,10 @@ from being stupid simple to setup to powerfull enough to solve all your silly pr
 An easy to self manage, secure server adult oriented [Virtual Private Server](https://vicetemple.net/aff.php?aff=969&page=adult-vps)
 
 - 📫 # Live NSFW sites: 
-  [Brandynette´s Mindfuck Tube](https://brandyntte.xxx/videos)
-  [Who is Brandynette?](https://brandynette.com/who-is-brandynette)
-
-
-
+  [Hypno Mindfuck Tube](https://brandyntte.xxx/) Blog with 6k free trans sissy vids you can use for your creations if you ask me to put you in "the list"
+  [Who is Brandynette?](https://brandynette.com/who-is-brandynette) 
+  
+  [RubberAlyx.xxx](https://rubberalyx.xxx/)
+this is how wordpress sites looks like with "pornX trans theme" but who cares for how the porn machine looks like its all about what the engine can do to get f*cked
+ its not properly conected & setup decitions decitions, who do i wanna work with, will they care about me & my content & support my career? ohh well amateur. 
+ (fact its up & running is the easy part... getting your model to actaully produce content? NYaaaKAAAaa!  )
