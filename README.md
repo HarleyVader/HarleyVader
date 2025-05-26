@@ -34,7 +34,11 @@ factorio-blueprints-melkanea
 🔧 Technologies Used: N/A
 🌐 Link: [factorio-blueprints-melkanea Repository](https://github.com/HarleyVader/factorio-blueprints-melkanea)
 
-Feel free to explore my repositories to see more of my work!
+Feel free to explore my repositories to see more of my work!![Foxphoria_Animation_885961944413134849_20241215141902003935_26_43](https://github.com/user-attachments/assets/f1cfc893-2ade-41ba-bb72-7f9789888d47)
+![Foxphoria_Animation_885961944413134849_20240819215027168867_30_07](https://github.com/user-attachments/assets/c77d9584-568a-4740-9d3c-30f52df5375c)
+![Foxphoria_Animation_885961944413134849_20240812225319978725_29_31](https://github.com/user-attachments/assets/449e099f-3ad3-472d-8e93-b4591ea24941)
+![F8bIBfcWQAAox0L_1](https://github.com/user-attachments/assets/8eea15b8-f142-4e6f-8b80-a735965670a6)
+
 
 🌱 Learning & Growth
 Currently expanding my knowledge in new AIGF technologies and frameworks.
