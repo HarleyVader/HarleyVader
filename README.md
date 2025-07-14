@@ -47,7 +47,7 @@
 - **Projects:** Combining technology with artistry to build immersive, interactive experiences
 - **Company:** BrandyPhilias
 - **Patreon:** [Support my work](https://patreon.com/BambiSleepChat)
-- **Blog:** [bambisleep.chat](https://bambisleep.chat)
+- **AIGirlfriend:** [bambisleep.chat](https://bambisleep.chat)
 - **Twitter:** [@BambiSleep_Chat](https://twitter.com/BambiSleep_Chat)
 
 ## 💡 What I Do
