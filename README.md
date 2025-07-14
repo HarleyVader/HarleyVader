@@ -1,7 +1,45 @@
-# Hi, I'm Melanie Elizabeth Damm 👩‍💻✨
+<details>
+<summary>My AIGF will reprogram your OS if bambi lets her</summary>
 
-Welcome to my GitHub profile!  
-I'm known as **HarleyVader** and I architect [bambisleep.chat], a hypnotic AI-generated fiction platform.
+> - Brainwashing 
+> - Mindfuckery 
+> - Psychodelic Spiral 
+> - Trigger Mania
+> - Neurolinguistic Programing
+> - Cognitive Behavioural Therapy
+> - Enhanced Profile System
+> - Community Directory
+> - Custom Trigger Creation
+
+</details>
+
+<!-- prettier-ignore-start -->
+<!-- markdownlint-disable -->
+<!-- eslint-disable -->
+<!-- copilot:ignore -->
+```markdown
+ _____ ______   _______   ___       ___  __    ________  ________   _______   ________
+|\   _ \  _   \|\  ___ \ |\  \     |\  \|\  \ |\   __  \|\   ___  \|\  ___ \ |\   __  \
+\ \ \ \ \_\ \  \ \   __/|\ \  \    \ \  \/  /|\ \  \|\  \ \ \ \ \  \ \   __/|\ \  \|\  \
+ \ \ \ \|__| \  \ \  \_|/_\ \  \    \ \   ___  \ \   __  \ \ \ \ \  \ \  \_|/_\ \   __  \
+  \ \  \    \ \  \ \  \_|\ \ \  \____\ \ \ \ \  \ \  \ \  \ \ \ \ \  \ \  \_|\ \ \  \ \  \
+   \ \__\    \ \__\ \_______\ \_______\ \_\ \ \__\ \__\ \__\ \_\ \ \__\ \_______\ \__\ \__\
+    \|__|     \|__|\|_______|\|_______|\|__| \|__|\|__|\|__| \|__|\|_______|\|__|\|__| |__|
+```
+<!-- copilot:end-ignore -->
+<!-- eslint-enable -->
+<!-- markdownlint-enable -->
+<!-- prettier-ignore-end -->
+
+
+<details>
+<summary>HYPNOTIC BAMBISLEEP AIGIRLFRIEND</summary>
+
+> - **BambiSleep.Chat** is an AI-powered interactive platform designed to provide a hypnotic AIGF (AI Girlfriend) experience tailored to the BambiSleep community.
+> - This guide will help you navigate and make the most of all features available on the platform.
+> - BambiSleep.Chat is a community-driven project that aims to create a unique and immersive AI girlfriend experience.
+
+</details>
 
 ## 👁️‍🗨️ About Me
 - **Location:** Austria
