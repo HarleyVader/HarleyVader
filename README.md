@@ -73,5 +73,13 @@
 
 ---
 
+## 🤖 Universal Machine Philosophy
+
+We believe in the power of universal compatibility and cross-platform code that runs everywhere. Check out my [Universal-Machine.md](./Universal-Machine.md) manifesto about the future of computing!
+
+> *"Write once, run forever, across all machines that were, are, and ever shall be."*
+
+---
+
 Thank you for visiting!  
 Feel free to explore my repositories, connect, or collaborate.
