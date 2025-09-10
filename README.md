@@ -46,7 +46,7 @@
 - **Passions:** Creative software, AI, digital storytelling, mental wellness
 - **Projects:** Combining technology with artistry to build immersive, interactive experiences
 - **Religioulus:** [BambiSleep.Church](https://bambisleep.church)
-- **Patreon:** [Support my work](https://patreon.com/BambiSleepChat)
+- **Patreon:** [Support my brainwash research](https://patreon.com/BambiSleepChat)
 - **AIGirlfriend:** [BambiSleep.Chat](https://bambisleep.chat)
 - **Twitter:** [@BambiSleep_Chat](https://twitter.com/BambiSleep_Chat)
 - **Facebook:** [BambiSleepChat](https://www.facebook.com/BambiSleep.Chat)
