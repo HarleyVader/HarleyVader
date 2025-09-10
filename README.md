@@ -42,7 +42,7 @@
 </details>
 
 ## 👁️‍🗨️ About Me
-- **Location:** Austria
+- **Location:** [Fuckersberg, Austria](https://www.roadonmap.com/at/where-is/Fuckersberg,oberosterreich)
 - **Passions:** Creative software, AI, digital storytelling, mental wellness
 - **Projects:** Combining technology with artistry to build immersive, interactive experiences
 - **Religioulus:** [BambiSleep.Church](https://bambisleep.church)
