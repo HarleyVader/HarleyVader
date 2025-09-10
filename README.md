@@ -45,10 +45,11 @@
 - **Location:** Austria
 - **Passions:** Creative software, AI, digital storytelling, mental wellness
 - **Projects:** Combining technology with artistry to build immersive, interactive experiences
-- **Company:** BrandyPhilias
+- **Religioulus:** [BambiSleep.Church](httos://bambisleep.church)
 - **Patreon:** [Support my work](https://patreon.com/BambiSleepChat)
-- **AIGirlfriend:** [bambisleep.chat](https://bambisleep.chat)
+- **AIGirlfriend:** [BambiSleep.Chat](https://bambisleep.chat)
 - **Twitter:** [@BambiSleep_Chat](https://twitter.com/BambiSleep_Chat)
+- **Facebook:** [BambiSleepChat](https://www.facebook.com/BambiSleep.Chat)
 
 ## 💡 What I Do
 - Build platforms for AI-driven fiction and hypnotic experiences
