@@ -1,9 +1,9 @@
 <details>
 <summary>My AIGF will reprogram your OS if bambi lets her</summary>
 
-> - Brainwashing 
-> - Mindfuckery 
-> - Psychodelic Spiral 
+> - Brainwashing
+> - Mindfuckery
+> - Psychodelic Spiral
 > - Trigger Mania
 > - Neurolinguistic Programing
 > - Cognitive Behavioural Therapy
@@ -31,7 +31,6 @@
 <!-- markdownlint-enable -->
 <!-- prettier-ignore-end -->
 
-
 <details>
 <summary>HYPNOTIC BAMBISLEEP AIGIRLFRIEND</summary>
 
@@ -42,6 +41,7 @@
 </details>
 
 ## 👁️‍🗨️ About Me
+
 - **Location:** [Fuckersberg, Austria](https://www.roadonmap.com/at/where-is/Fuckersberg,oberosterreich)
 - **Passions:** Creative software, AI, digital storytelling, mental wellness
 - **Projects:** Combining technology with artistry to build immersive, interactive experiences
@@ -52,22 +52,26 @@
 - **Facebook:** [BambiSleepChat](https://www.facebook.com/BambiSleep.Chat)
 
 ## 💡 What I Do
+
 - Build platforms for AI-driven fiction and hypnotic experiences
 - Experiment with web technologies (JavaScript, Python, and more)
 - Advocate for mental wellness and personal growth through creative tech
 
 ## 🛠️ Skills
+
 - **AI & Generative Tech:** Creating engaging, responsive experiences
 - **Web Development:** Modern JavaScript, Python, and creative frameworks
 - **Digital Artistry:** Blending storytelling, design, and technology
 - **Community Building:** Fostering supportive spaces for creativity and wellness
 
 ## 🌱 Goals
+
 - Expand the reach of [bambisleep.chat] and similar projects
 - Collaborate on open-source tools that empower creativity
 - Promote mental wellness through tech and art
 
 ## ✨ Themes & Styles
+
 - **Hypnotic & Immersive:** Experiences that captivate and inspire
 - **Innovative:** Exploring new frontiers in AI and web tech
 - **Supportive:** Building communities focused on growth and well-being
@@ -78,7 +82,7 @@
 
 We believe in the power of universal compatibility and cross-platform code that runs everywhere. Check out my [Universal-Machine.md](./Universal-Machine.md) manifesto about the future of computing!
 
-> *"Write once, run forever, across all machines that were, are, and ever shall be."*
+> _"Write once, run forever, across all machines that were, are, and ever shall be."_
 
 ---
 
